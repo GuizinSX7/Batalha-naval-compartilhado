@@ -1,3 +1,3 @@
 # Batalha naval compartilhado 
 
-- O Guilherme Ferraresi é perfeito
+- O Guilherme Ferraresi é perfeito 👌
